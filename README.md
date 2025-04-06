@@ -1,1 +1,3 @@
 # blackcobra
+
+master king im 
